@@ -1,1 +1,1 @@
-# The contents of this page remain locked for now. 🥱
+# The contents of this page remain locked for now. Check back in after session 1.
