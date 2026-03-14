@@ -3,4 +3,3 @@
 *"There's a copy of each of my publications in the back. The owner insisted, against my wishes. They are free to take. One can never be sure... I reckon that in about a year they will be quite famous."*
 
 * [[On the Hypocrisy of the Keepers and their Contribution to our Civilization's Imminent Downfall]]
-* [[]]
