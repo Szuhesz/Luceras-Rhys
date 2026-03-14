@@ -1,0 +1,16 @@
+#### by Luceras Rhys
+
+Keth-Aurel, a city of millions, each and every one of us blinded by our savior[^1]. I urge you, dear reader, for a moment to avert your eyes from its blinding rays and take a good look around yourself. I trust my message is clear, and you too can see your neighbors' relentlessness in ignoring what we've been avoiding for nearly two millennia. For behind us lies an infinite darkness, which to this day remains the edge of our world. That alone should infuriate one. Alas, we shall not stop there, for proper analysis and exploration of the matter must be conducted.
+
+A cataclysm shrouded our world in darkness ages past. The Architects[^2] knew of it, hence the artificial sun they affixed above our beloved city. Flames imprisoned within a weave of arcane glyphs, combusting perpetually. Its rays provide life with the environment it requires, for without its warmth we would go cold, and our crops would ultimately fail. Without it we are naught.
+
+Whatever the true motives were of such an advanced civilization is of no importance. In essence it can be claimed with confidence that the survival of their people was important enough to replicate a celestial body mere miles above our homes. So, our future wholly depends on a single construct.
+
+Therefore, an institution was founded, a collective of few, one made of the elite. The Keepers, custodians of Thren-Sol have claimed it their own, locking the savior away from the minds of the unworthy. Perhaps with good reason. Exposing its secrets would've certainly invited malicious actors. Yet, there was a severe miscalculation in their hasty decision. One of arrogance. Thinking that their order is perfect.
+
+But why was it such a tragic mistake? Well, look no further than three centuries ago. The first Flickering. A new "phase", or so claim the Keepers. Nothing to worry about, good residents of Keth Aurel! During my studies we called such an event an anomaly. Unexpected. Out of order. Magic behaves strangely beneath those lights, unpredictable and volatile. Admittedly, people are also plagued by visions, almost like prophetic dreams. I wonder what the Architects intended by adding such a phase to our sole source of life. I cannot help but be reminded of a wavering flame, a power source on the brink of collapse.
+
+Unfortunately, I cannot provide you with answers, none of us truly can, other than them, of course. That isn't the point of my rambling anyway, but to bring light to the inherent flaws of our society. By trusting the Keepers with our lives we have doomed ourselves. Irreversibly perhaps. I dream of a world where free thought spearheads innovation, a world where the properties of the construct that we depend on are not restricted to a handful of people, but shared with the millions who would die if it failed. In such a world worries like this wouldn't exist.
+
+[^1]: My preferred allegory for Thren-Sol. There is no ill intent behind the sarcasm.
+[^2]: The civilization that predates our own. Creators of Thren-Sol and Keth-Aurel.
