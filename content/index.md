@@ -6,5 +6,6 @@ title: Luceras Rhys
 ##### *"Ah yes... [[Publications|that's my name on it]]. That book is not a relic. It explores... unusual thoughts."*
 ##### *"Don't bring up my [[Journal|journal]] in front of customers Devyn! How many times do I have to tell you, my room is off limits!*"
 ![[Luceras Rhys.png]]
+
 *Never regret thy fall, O Icarus of the fearless flight, For the greatest tragedy of them all, Is never to feel the burning light.*
 -Oscar Wilde
