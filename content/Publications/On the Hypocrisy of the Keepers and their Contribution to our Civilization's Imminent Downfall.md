@@ -1,4 +1,4 @@
-#### by Luceras Rhys
+## by Luceras Rhys
 
 Keth-Aurel, a city of millions, each and every one of us blinded by our savior[^1]. I urge you, dear reader, for a moment to avert your eyes from its blinding rays and take a good look around yourself. I trust my message is clear, and you too can see your neighbors' relentlessness in ignoring what we've been avoiding for nearly two millennia. For behind us lies an infinite darkness, which to this day remains the edge of our world. That alone should infuriate one. Alas, we shall not stop there, for proper analysis and exploration of the matter must be conducted.
 
