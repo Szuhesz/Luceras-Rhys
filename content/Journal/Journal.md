@@ -30,4 +30,5 @@ What kind of a host would I be if I didn't accompany such a welcome guest on her
 No surprise there. I admire her for it, truly. If I were a little different, perhaps I would have asked to join. It is a shame I didn't recognize the sentiment sooner. Perhaps I could have served as an anchor, someone to relate to. Still, we all do what we must. For her, that lies outside the walls. For me, **it remains here.**
 
 In anticipation, I grabbed a wind up music box on my way out to give as a parting gift. Had her eyes on it since the moment she first stepped inside The Risen Phoenix. Tried convincing her to stay, but even I do not have the strength to stand in the way of **such a decision**. It should remind her of me. I hope she remembers. **She is one of the few.**
+
 **I truly hope our paths cross once more.**
