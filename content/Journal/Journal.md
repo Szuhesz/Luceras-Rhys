@@ -12,6 +12,7 @@ As in previous findings, the core eventually turns unstable and breaks the integ
 The crystal itself remained intact, but was depleted of its properties. It turned colorless.
 
 Note to self
+
 Previous assumptions about the outside are once more confirmed. Its resources **yield better results** than anything I have found inside the walls.
 Next time, question the seller more thoroughly. I need additional sources of supply.
 ***
