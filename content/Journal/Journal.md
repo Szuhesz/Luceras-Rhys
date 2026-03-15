@@ -31,4 +31,3 @@ No surprise there. I admire her for it, truly. If I were a little different, per
 
 In anticipation, I grabbed a wind up music box on my way out to give as a parting gift. Had her eyes on it since the moment she first stepped inside The Risen Phoenix. Tried convincing her to stay, but even I do not have the strength to stand in the way of **such a decision**. It should remind her of me. I hope she remembers. **She is one of the few.**
 **I truly hope our paths cross once more.**
-***
