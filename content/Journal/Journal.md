@@ -54,7 +54,7 @@ He learned of something that made him lose faith in his order. A plan was born, 
 *"...I intend to find the gateway that the confidential scripts describe. I have studied them greatly and believe I can activate it... know what lurks on the other side..."*, I'm sorry you didn't get to find out. A gateway? Other side?
 *"...one's sacrifice..."*, a shame, I think we would've gotten along.
 
-*"Prepare for next year's Flickering..."*, they know beforehand? *"...Ms Alkov especially is vital to the cultural ecosystem that lives in the Fade..."*, so she is in the Fade. A shared hatred for the Keepers, promising. *"...Extremum Initium..."*, strange, never heard of such a thing. *"...I'm a dead man walking either way..."*, we all are, friend.
+*"Prepare for next year's Flickering..."*, they know beforehand? *"...Ms Alkov especially is vital to the cultural ecosystem that lives in the Fade..."*, so she is in the Fade. A shared hatred for the Keepers, promising.*"...I'm a dead man walking either way..."*, we all are, friend.
 
 *"...Especially those that do not have any control..."*, I need to learn more about this darkness. Are there are creatures of the dark with control?
 
