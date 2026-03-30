@@ -56,7 +56,7 @@ He learned of something that made him lose faith in his order. A plan was born, 
 
 *"Prepare for next year's Flickering..."*, they know beforehand? *"...Ms Alkov especially is vital to the cultural ecosystem that lives in the Fade..."*, so she is in the Fade. A shared hatred for the Keepers, promising. *"...Extremum Initium..."*, strange, never heard of such a thing. *"...I'm a dead man walking either way..."*, we all are, friend.
 
-*"...Especially those that do not have any control..."*, I need to learn more about this darkness. Are there creatures of the dark with control?
+*"...Especially those that do not have any control..."*, I need to learn more about this darkness. Are there are creatures of the dark with control?
 
 *"...retrieved the creature..."*, this was written nine days ago. *"...Vuri and a few other trusted members deliver it..."*, this happened during the festival.
 *"...I will then perform the same ritual... It however will be encased with the mutated crystals that **they** created to encase the being..."*, a ritual causes the Flickering? Why tamper with it? And a crystal, perhaps like the one I've been given of recent. Who are they? *"...I plan to be out of the city by 5am..."*, Liwen and his troupe went after him. But why would Mulls flee into the True Night? *"...As much of a monster as **them**..."*, who are you speaking of? Why not call them by their name? Could this be the True Light Tirzah speaks of so often?
