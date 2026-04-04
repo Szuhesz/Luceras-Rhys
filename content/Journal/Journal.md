@@ -18,6 +18,7 @@ Previous assumptions about the outside are once more confirmed. Its resources **
 Next time, question the seller more thoroughly. I need additional sources of supply.
 ***
 # Isadora
+### 12th of Trudari, 2173
 
 I heard some rumbling downstairs. Went to investigate the noise, assuming a thief was on the prowl. To my surprise, the only thing missing was food from the kitchen.
 
@@ -65,3 +66,16 @@ He learned of something that made him lose faith in his order. A plan was born, 
 *...an abandoned building...*, how many of those can there be?
 
 *"...go to the Gateway..."*, what is this Gateway? Is it over the threshold? *"...what she has told me..."*, Isadora. You told him but not me?! I'm an embarrassment of a host...
+***
+# Only a Reach Away
+### 17th of Trudari, 2173
+
+Tirzah has **torn into Awan**. Though I myself wished to run along the same message, the delivery removed **all possibility of negotiation**. A shame, having come all this way, only to be halted by my own cowardice. Of course, with all the hard work trying to establish some good will was thrown aside the moment Awan was told to kill himself. Well, I'm not one to surrender so quick, but **it is draining**, I must say.
+
+I've never seen **Ravi burn so bright**. I have a hard time finding words for it. Regardless of recent events that he is plagued by, I still am surprised by the force which he acted with. I'm honored to consider him my closest friend. He is a light I must not lose focus of in my own pursuits. I never spoke of it to anyone, **not even Mirielle**. Yet, I get the sense **he would understand**. **He alone**, for now.
+
+Regulation of my own emotions **is required**. Admittedly, I'm no fighter, yet in my very first confrontation I managed to find some wicked enjoyment in seeing my opponent suffer. Joy which hindered common sense. **Nameless was the one** to snap me out of it, who knows how far I would've gone otherwise. Though reflection on my own actions is needed, I shall reassure myself even in writing, **few Keepers deserve to see the light of our home**.
+
+In times like these I question if some higher power does exist. To have this **journal fall into my lap** is a blessing I could never have imagined. Though, I was assured of my own theories, to have **a member of the Keepers confirm it** only engulfs my already existing sentiments. The order is nothing more than a **parasite**, one that **stands in the way of our survival, our progression**. I already fantasize on how to **destroy them**. **The people deserve to know**.
+
+She came to me on her own accord. Tirzah. **Wanted to know more**. Perhaps I was rash in my judgement. It turns out she can't read. I shall teach her. Each time we talk, I'm filled with more suspicion that she knows more. The crystal, the one that yielded the best results so far, **she inquired about it**. How will I extract that from here, I know not. For now, even though I can't see her face, the things she says fills me with hope. There is true potential in her. Only time will tell.
