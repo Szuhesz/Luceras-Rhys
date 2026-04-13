@@ -79,3 +79,34 @@ Regulation of my own emotions **is required**. Admittedly, I'm no fighter, yet i
 In times like these I question if some higher power does exist. To have this **journal fall into my lap** is a blessing I could never have imagined. Though, I was assured of my own theories, to have **a member of the Keepers confirm it** only engulfs my already existing sentiments. The order is nothing more than a **parasite**, one that **stands in the way of our survival, our progression**. I already fantasize on how to **destroy them**. **The people deserve to know**.
 
 She came to me on her own accord. Tirzah. **Wanted to know more**. Perhaps I was rash in my judgement. It turns out she can't read. I shall teach her. Each time we talk, I'm filled with more suspicion that she knows more. The crystal, the one that yielded the best results so far, **she inquired about it**. How will I extract that from here, I know not. For now, even though I can't see her face, the things she says fills me with hope. There is true potential in her. Only time will tell.
+***
+# Reading Exercise for Tirzah
+
+## Phonics
+
+*This is how we represent some of our sounds. Pair them to the symbols while repeating these words out loud. You will make the connections in no time. Once you feel comfortable with these, I will show you the rest.* - Lu
+
+a - **A**w**a**n, **A**mit 
+c - **c**rystal
+f - **f**riend, **f**ood
+g - **g**old, **g**em
+h - **h**elp, **h**arm, **h**ide, **h**orse
+i - **i**s, **I**
+k - **k**night, **K**eeper
+l - **L**u, **l**ight
+m - **m**ask
+n - **N**ameless, **n**ight
+p - **p**romise
+r - **R**avi
+s - **S**ol, **s**un
+t - **T**irzah, **t**rue, **T**hren, **t**rade
+w - **w**olf, **w**here, **w**hat
+## Picture Association
+
+The rest of the page is covered with crude and near childish drawings of the above list. Scattered with no order, each depiction is paired with the word used to describe it. All first letters are accentuated, as to help pair the letters to their sounds.
+
+Looking upon them for a while, certain details can be noted. Though the drawings still are childish, lacking detail, it seems shapes come to him easily. Almost as if they were drawn like a blueprint.
+
+There is one depiction in the center, that received more effort than the rest. A near perfect replica of the golden mask Tirzah wears, half covered by a hood and scarf. Each letter accentuated, with plenty of space in between.
+
+*Now remember what we practiced. T is for...* - Lu
