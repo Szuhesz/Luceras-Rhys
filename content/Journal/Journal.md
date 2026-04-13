@@ -86,21 +86,36 @@ She came to me on her own accord. Tirzah. **Wanted to know more**. Perhaps I was
 
 *This is how we represent some of our sounds. Pair them to the symbols while repeating these words out loud. You will make the connections in no time. Once you feel comfortable with these, I will show you the rest.* - Lu
 
-a - **A**w**a**n, **A**mit 
+a - **A**w**a**n, **A**mit
+
 c - **c**rystal
+
 f - **f**riend, **f**ood
+
 g - **g**old, **g**em
+
 h - **h**elp, **h**arm, **h**ide, **h**orse
+
 i - **i**s, **I**
+
 k - **k**night, **K**eeper
+
 l - **L**u, **l**ight
+
 m - **m**ask
+
 n - **N**ameless, **n**ight
+
 p - **p**romise
+
 r - **R**avi
+
 s - **S**ol, **s**un
+
 t - **T**irzah, **t**rue, **T**hren, **t**rade
+
 w - **w**olf, **w**here, **w**hat
+
 ## Picture Association
 
 The rest of the page is covered with crude and near childish drawings of the above list. Scattered with no order, each depiction is paired with the word used to describe it. All first letters are accentuated, as to help pair the letters to their sounds.
