@@ -90,6 +90,8 @@ a - **A**w**a**n, **A**mit
 
 c - **c**rystal
 
+e - **E**loise
+
 f - **f**riend, **f**ood
 
 g - **g**old, **g**em
@@ -98,7 +100,7 @@ h - **h**elp, **h**arm, **h**ide, **h**orse
 
 i - **i**s, **I**
 
-k - **k**night, **K**eeper
+k - **k**night, **K**eeper, **K**nut
 
 l - **L**u, **l**ight
 
@@ -125,3 +127,45 @@ Looking upon them for a while, certain details can be noted. Though the drawings
 There is one depiction in the center, that received more effort than the rest. A near perfect replica of the golden mask Tirzah wears, half covered by a hood and scarf. Each letter accentuated, with plenty of space in between.
 
 *Now remember what we practiced. T is for...* - Lu
+***
+# Awan Elu's Guide of the Meraki Family, for Luceras:
+
+* **Newen-Malik Meraki**: Head of the House (General of the Meraki Knights); important to get his name right!!! Mean resting bitch face
+* **Adsila-Adjei Meraki**: Head of the Logistics of the Merakis; never underestimate!
+* **Inola-Asiri Meraki**: Marshal of the Meraki Knights; seems unserious but will beat your ass
+* **Liwen-Payne Meraki**: Captain of his... well pretty dead squad. But he'll get a new one soon.
+* **Klah Meraki**: My grandfather. Lunatic
+* **Q**: You know them! That's not their full name, but you dont gotta know. My best friend
+* **Nepenthe Augur**: My brother's girlfriend, his twin soul and such a lovely woman. Kind of too good for him. Don't tell him that.
+***
+# Experiment Log 29
+## 26th of Trudari, 2173
+
+**Tirzah's body is adorned with crystals and gems. In places having fully replaced her flesh.**
+
+Some gems prove to be incredibly efficient cores, while others seem useless.
+
+Decided to take to the storage room, trying all the crystals we have.
+
+One of them lasted twenty minutes, the longest I've managed to maintain so far.
+
+A new hypothesis. **What if it isn't crystals specifically that the Sun needs, but life?** Needs further testing.
+
+Fetched a rat. Placed the gems into its belly through an incision, then proceeded.
+
+**Six hours. My replica stayed stable until the morning.**
+
+**It needs life. It thirsts for it.**
+
+**Drawn my blood from my body, with force.**
+***
+# Fool
+## 27th of Trudari, 2173
+
+I arrive at a crossroads, unsure if I can trust my own **judgement** anymore.
+
+It became clear a while ago. No matter what I may achieve on my own, it will never be enough. I need - no, my **world** needs like minded individuals **willing to fight** for this dream.
+
+So, I surrounded myself with them. Or at least with those I believe to have the potential. And as such, a risk had to be taken. Some known, some unknown, all required my trust to be granted. And myself to be left vulnerable.
+
+That is why you are a fool, Lu. Not because of trusting, but because of expecting not to have that trust twisted and used against you. This grievous mistake has cost her, perhaps forever. And there is no one else to blame, but you.
