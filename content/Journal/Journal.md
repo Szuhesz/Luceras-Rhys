@@ -168,4 +168,42 @@ It became clear a while ago. No matter what I may achieve on my own, it will nev
 
 So, I surrounded myself with them. Or at least with those I believe to have the potential. And as such, a risk had to be taken. Some known, some unknown, all required my trust to be granted. And myself to be left vulnerable.
 
-That is why you are a fool, Lu. Not because of trusting, but because of expecting not to have that trust twisted and used against you. This grievous mistake has cost her, perhaps forever. And there is no one else to blame, but you.
+That is why you are a fool, Lu. Not because of trusting, but because of expecting not to have that trust twisted and used against you. This grievous mistake has cost **her**, perhaps forever. And there is no one else to blame, but you.
+***
+# Loss
+## 29th of Trudari, 2173
+
+This was inevitable. The day it all began, like a prophecy foretold it occurred to me. One day I would have to take serious action, more than just publishing my musings. Facing such an enemy means the consequences are not local to myself. Everyone I love, everyone I care for will become a target. Some tool to be used against me. To threaten me. And that scares me to my core. 
+
+Time, of course, time always seems to be a problem. Regardless of my own state after losing a friend, I had to deal with the problem at hand. The danger I put you in. It could no longer be ignored, so I went to try convince your mother. A desperate, pathetic attempt at fixing things already broken beyond repair.
+
+She of course was right, as always. Her family remains a priority above all, even above the stinking curator of the family's shop. Don't ever get angry at her, please. She had your best interest in mind, and she always will.
+
+It was the best thing to do. For your safety, for your mother's. For everyone's. Please forgive me. It tears me apart, not letting my mind rest for a single moment. The pain that I cause. The idea that you worry for me, that you might think I have abandoned you. You will always be my best friend. My little sidekick. You are destined for great things. The strongest, smartest tinkerer Keth Aurel will ever know.
+
+**I'm sorry, Little Man. Never stop being curious.**
+***
+# Experiment Log 30
+## 30th of Trudari, 2173
+
+**A new, possible alternative from outside. A crystal that doesn't resonate, but Tirzah claims it feels warm to the touch.**
+
+It doesn't feel warm to my skin at all.
+
+The experiment proved futile, the gem didn't hold at all.
+
+This is the longest it has maintained itself from the initial power source. Eight hours.
+
+Perhaps in Experiment number 29, the depleted gems stuffed in the rat were lacking life essence.
+
+I used my own blood once more, its pull was never this strong.
+
+**Note to self:**
+
+Be more cautious with direct contact. Draw your blood into a container first, then feed it.
+
+How long does life force linger in a body? **It could be how Thren-Sol is fueled.**
+
+Fetch a new rat, kill it and wait a little while before firing up the sun. See if the theory holds.
+
+**Continue searching for alternative sources.**
