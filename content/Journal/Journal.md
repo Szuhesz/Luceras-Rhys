@@ -224,4 +224,4 @@ Regardless, these revelations should be shared with the public. I cannot say for
 
 An assault will be mounted on the city in the coming days. Servants of the dark will try and take what is left of our waning civilization. In no way or shape do I plan on dying out there, but I'd rather lend what force I can to its defenders, than to watch it slip from my hands.
 
-Above everything else ever written on these pages, let this be the one thing you remember. It isn't just a force of nature. It thinks, whispers, lies and manipulates. It schemes and wants consume what life is left in this world. It is your enemy. And it won't stop until there is nothing left.
+Above everything else ever written on these pages, let this be the one thing you remember. It isn't just a force of nature. It thinks, whispers, lies and manipulates. It schemes and wants to consume what life is left in this world. It is your enemy. And it won't stop until there is nothing left.
