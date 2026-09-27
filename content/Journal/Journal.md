@@ -207,5 +207,19 @@ How long does life force linger in a body? **It could be how Thren-Sol is fueled
 Fetch a new rat, kill it and wait a little while before firing up the sun. See if the theory holds.
 
 **Continue searching for alternative sources.**
+***
+# A Possible Farewell
 
-asd
+## 7th of Alouria, 2173
+
+Hey, old friend. I owe an apology.
+
+The past week has been awfully eventful, and with it my mind a jumble. In the chaos of it all the thought did not occur to seek your well known comfort, and so it seems you have gone neglected. Though the rigid, damp, dark ceiling of my accommodation has been sufficiently distracting, I feel relieved to have you in my hand again. If only you knew how quite this place can be with you around.
+
+It would be futile to even begin listing all the things I have learned. At times I am unsure if I comprehend them myself. Still, the sense of shame does not release its claws from the hold it has on me. For so long I have prepared myself, my mind for this confrontation. A world hidden behind curtains of well woven lies. Finally revealed.
+
+True, it has expanded my sight, yet left me with naught but further questions I am unsure I wish to find answers for. Well, I exaggerate. Let me reassure you I will not relent in my pursuit. Still, the fear looms, gnawing at my mind. This thing you and I seek. **What will it demand of us?**
+
+Regardless, these revelations should be shared with the public. I cannot say for certain that my survival is guaranteed. I have contracted the darkness. It flows in my veins, though my friends tell me it isn't as severe as I make it out to be. In moments of silence I can feel it crawl under my skin. It wants what I have. It hungers.
+
+An assault will be mounted on the city in the coming days. Servants of the dark will try and take what is left of our waning civilization. In no way or shape do I plan on dying out there, but I'd rather lend what force I can to its defenders, than to watch it slip from my hands.
