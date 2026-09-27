@@ -207,3 +207,5 @@ How long does life force linger in a body? **It could be how Thren-Sol is fueled
 Fetch a new rat, kill it and wait a little while before firing up the sun. See if the theory holds.
 
 **Continue searching for alternative sources.**
+
+asd
