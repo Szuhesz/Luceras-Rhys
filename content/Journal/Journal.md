@@ -223,3 +223,5 @@ True, it has expanded my sight, yet left me with naught but further questions I 
 Regardless, these revelations should be shared with the public. I cannot say for certain that my survival is guaranteed. I have contracted the darkness. It flows in my veins, though my friends tell me it isn't as severe as I make it out to be. In moments of silence I can feel it crawl under my skin. It wants what I have. It hungers.
 
 An assault will be mounted on the city in the coming days. Servants of the dark will try and take what is left of our waning civilization. In no way or shape do I plan on dying out there, but I'd rather lend what force I can to its defenders, than to watch it slip from my hands.
+
+Above everything else ever written on these pages, let this be the one thing you remember. It isn't just a force of nature. It thinks, whispers, lies and manipulates. It schemes and wants consume what life is left in this world. It is your enemy. And it won't stop until there is nothing left.
